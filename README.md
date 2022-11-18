@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Ltw32
+- 👀 I’m interested in Coding, Gaming, and Computers in general
+- 💞️ I’m looking to collaborate on anything intresting
+- 📫 How to reach me lthomaswebb@gmail.com or Bluegrapefruits@1802 or 3852518385
